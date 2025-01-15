@@ -2,7 +2,7 @@
 
 Are you an avid gamer or someone looking to boost their Xbox experience with free content? If so, you're in the right place! We're offering a fantastic opportunity to grab a **FREE $100 US Xbox Gift Card Code** – no hidden fees, no tricks, just a simple way to unlock your Xbox gaming potential.
 
-### [✅👉CLICK HERE TO GET NOW!](https://shorturl.at/y74CQ)
+### [✅👉CLICK HERE TO GET NOW!](https://justfree.xyz/xbox/go/)
 
 Before diving into the details of how to claim your free gift card, let’s explore some key information about Xbox Gift Cards, why they’re valuable, and how they can enhance your gaming experience.
 
